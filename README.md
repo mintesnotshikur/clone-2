@@ -1,1 +1,1 @@
-Preview -> https://mntua.github.io/clone-2/
+Preview -> https://mintesnotshikur.github.io/clone-2/
